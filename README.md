@@ -1,7 +1,7 @@
 # Portfolio
 <b>Graphics:</b><br>
-https://imgur.com/a/uUhvGnV
-https://imgur.com/a/jXyFYyr
+https://imgur.com/a/uUhvGnV<br>
+https://imgur.com/a/jXyFYyr<br>
 https://imgur.com/a/Jnj2dY7
 
 <b>Forum Designs:</b><br>
